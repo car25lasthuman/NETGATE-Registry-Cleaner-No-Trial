@@ -1,0 +1,1 @@
+# NETGATE-Registry-Cleaner-No-Trial
